@@ -1,4 +1,4 @@
-## JY JH(X)
+## JY(O) JH(X)
 
  - 🎞️Movie 영화 映画
  - 🖼️Drawing 그림 ドローイング
